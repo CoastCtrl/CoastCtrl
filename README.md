@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **salahlisahil055@gmail.com**
 
-- ⚡ Fun fact **Why loads carried by a ship are called cargo, but loads in the car are named shipment?**
+- ⚡ Fun fact: **Why loads carried by a ship are called cargo, but loads in the car are named shipment?**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
